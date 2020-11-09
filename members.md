@@ -56,6 +56,7 @@
 1. [王梓懿](https://ccr-china.github.io/membership/王梓懿.html)
 1. [温乃楠](https://ccr-china.github.io/membership/温乃楠.html)
 1. [邬心云](https://ccr-china.github.io/membership/邬心云.html)
+1. [吴晔](https://ccr-china.github.io/membership/吴晔.html)
 1. [吴友钦](https://ccr-china.github.io/membership/吴友钦.html)
 1. [相德宝](https://ccr-china.github.io/membership/相德宝.html)
 1. [徐涵](https://ccr-china.github.io/membership/徐涵.html)
