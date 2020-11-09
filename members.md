@@ -88,4 +88,5 @@
 1. [周斌](https://ccr-china.github.io/membership/周斌.html)
 1. [周金连](https://ccr-china.github.io/membership/周金连.html)
 1. [周翔](https://ccr-china.github.io/membership/周翔.html)
+1. [周易军](https://ccr-china.github.io/membership/周易军.html)
 1. [祝建华](https://ccr-china.github.io/membership/祝建华.html)
